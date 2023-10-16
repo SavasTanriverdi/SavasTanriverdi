@@ -7,6 +7,6 @@
 - 💞️ I'm open to collaborating on exciting projects.
   - I would be especially thrilled to work on projects related to artificial intelligence, data analytics, or software development.
   - I value engaging with others, exchanging ideas, and creating innovative solutions together.
-- 📫 You can reach me via email at savas.tanriverdi@outlook.com.
+- 📫 You can reach me via email at savastnr@duck.com.
   - You can also connect with me on LinkedIn at linkedin.com/in/savastanriverdi.
   - I'm eagerly looking forward to meeting new people and exploring collaboration opportunities.
